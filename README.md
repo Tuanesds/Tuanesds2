@@ -6,6 +6,4 @@
 
 👩‍🎓 Pós Graudada em Psicologia Organizacional 
 
-📧 Envie seu curriculo no e-mail:recrutamento@weopen.com.br 
-
 Pronoums: ela/dela 
